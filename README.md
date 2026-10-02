@@ -18,7 +18,7 @@ Here are some ideas to get you started:
 
 ### Associate Software Engineer | Python | Linux | AWS | DevOps | SAP MM
 
-📍 Bangalore, HYdrabad, India
+📍 Bangalore / Hyderabad, India
 
 ---
 
